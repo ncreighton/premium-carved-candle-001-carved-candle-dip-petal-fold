@@ -1,0 +1,2 @@
+# premium-carved-candle-001-carved-candle-dip-petal-fold
+Struggling to organize your carved candle and petal fold art projects without losing design inspiration or production notes? The Carved Candle Dip &amp; Petal Fold Art Craft Lab is your all-in-one Notion workspace designed specifically for candle artists who want to scale their craft systematically.  This template eliminates the chaos of scattered sket
